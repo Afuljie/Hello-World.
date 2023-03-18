@@ -15,3 +15,4 @@ Andrea Sadlucap
 KentBrian Galleros
 Christcian Amoguis
 Erussha Mae Bangcoyo
+John Dwight Paye
