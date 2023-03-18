@@ -13,3 +13,4 @@ Hannah Gaguan
 Clark Anthony Baal
 Andrea Sadlucap
 KentBrian Galleros
+Christcian Amoguis
